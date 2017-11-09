@@ -1,5 +1,5 @@
 # Kim-Kardashian
-Kimberly Kardashian West is an American reality television personality, socialite, actress, businesswoman and model. 
+Kim Kardashian West is an American reality television personality, socialite, actress, businesswoman and model. 
 
 Born: October 21, 1980 (age 37), Los Angeles, California, United States
 
